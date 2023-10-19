@@ -1,4 +1,4 @@
-# Pupparazzi
+# New money gang
 
 Learning objectives:
 
